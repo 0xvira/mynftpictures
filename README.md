@@ -1,1 +1,1 @@
-# mynftpictures
+# MY NFT PICTURES
